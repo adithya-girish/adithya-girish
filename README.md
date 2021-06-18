@@ -1,4 +1,4 @@
-### Hola , I', Adithya 👋
+### Hola , I'm, Adithya 👋
 
 ## I'm a Developer, Techie !!
 
